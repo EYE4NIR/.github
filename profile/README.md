@@ -12,4 +12,4 @@ Think of it as giving machines a superpower.
 
 🚗 Automotive &nbsp;·&nbsp; 🏭 Industrial &nbsp;·&nbsp; 🌾 Agri-Food
 
-🌐 [eye4nir.com](https://www.eye4nir.com) &nbsp;·&nbsp; 📍 Calolziocorte, Italy
+🌐 [eye4nir.com](https://www.eye4nir.com) &nbsp;·&nbsp; 📍 ComoNExT - Innovation Hub, Lomazzo (Como), Italy
